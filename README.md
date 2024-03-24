@@ -24,7 +24,7 @@ Repositório de
 |Audioslave|[Like a Stone](https://www.youtube.com/watch?v=7QU1nvuxaMA&list=RDEM7hXKgkFvR4HZjnQR-RVCfg&index=21)
 |Aerosmith|[I Don't Want to Miss a Thing](https://www.youtube.com/watch?v=JkK8g6FMEXE&list=RDEM7hXKgkFvR4HZjnQR-RVCfg&index=23)
 |Limpbizkit|[Behind Blue Eyes](https://www.youtube.com/watch?v=ozllPih3hOk&list=RDEM7hXKgkFvR4HZjnQR-RVCfg&index=24)
-|Lenny Kravitz|[https://www.youtube.com/watch?v=ZDhMkHfTdTc](https://www.youtube.com/watch?v=ZDhMkHfTdTc)
+|Lenny Kravitz|[Can't Get You Off My Mind](https://www.youtube.com/watch?v=ZDhMkHfTdTc)
 |Suede|[Trash](https://www.youtube.com/watch?v=-PdKGDMhau4)
 |The Wallflowers|[One Headlight](https://www.youtube.com/watch?v=Zzyfcys1aLM)
 |Train|[Drops of Jupiter](https://www.youtube.com/watch?v=7Xf-Lesrkuc)
